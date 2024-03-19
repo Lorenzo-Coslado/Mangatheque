@@ -1,1 +1,1 @@
-# Mangath-que
+# Mangatheque
